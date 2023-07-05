@@ -1,2 +1,1 @@
-# minamagu01
-testdesuyo
+いちご
